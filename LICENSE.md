@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with custom grid trading bot for futures Algorithm | high-frequency + grid-trading, the #1 grid trading bot for futures. Includes high-frequency and
 
 
 
